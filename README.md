@@ -1,2 +1,2 @@
-# Azerbaijan-Edits
+# Aze-King-Ball
 Command
